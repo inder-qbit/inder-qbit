@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Inder
-- 📫 How to reach me? 👉🏼 ```inder.kumar@talabat.com``` or slack me [@inder](https://deliveryhero.slack.com/team/U028NE4K8ET)
+- 📫 How to reach me? 👉🏼 slack me [@inder](https://deliveryhero.slack.com/team/U028NE4K8ET)
